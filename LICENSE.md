@@ -1,4 +1,4 @@
-
+Download ultimate Scripts for king legacy for king legacy, the best script available, featuring anti-ban and fly. This powerful tool ensures you have the upper hand in every
 
 
 
